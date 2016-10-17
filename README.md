@@ -1,5 +1,5 @@
-## H2
-Verslag Bits & Chips
+## Verslag Bits & Chips
+
 
 Mijn favoriete presentatie die ik heb bezocht was die van de pcb printer. Deze stond midden van de beurs. De man was aangenaam om naar te luisteren en legde alles duidelijk uit 
  
